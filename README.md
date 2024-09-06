@@ -1,1 +1,3 @@
-![1](https://encrypted-tbn3.gstatic.com/images?q=tbn:ANd9GcSoYbbtK5Lg__VZyBeun21VoEJmsOWcz2yczGdB7vw5RSkb39gL)
+天行健 君子以自强不息
+
+地势坤 君子以厚德载物
